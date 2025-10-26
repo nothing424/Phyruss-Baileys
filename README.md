@@ -1,6 +1,6 @@
 ⸙ 𝙋𝙃𝙔𝙍𝙐𝙎 — 𝙒𝙃𝘼𝙏𝙎𝘼𝙋𝙋 𝘼𝙋𝙄 (PHYRUSBAILS)
 
-<div align="center"><img src="https://ibb.co/QW1qwTr" width="100%"/>
+<div align="center"><img src="https://files.catbox.moe/x2mv49.jpg" width="100%"/>
 <a href="https://wa.me/62881010520506"><img src="https://img.shields.io/badge/WhatsApp-Owner-brightgreen?style=for-the-badge"></a>
 <a href="https://t.me/phyruss"><img src="https://img.shields.io/badge/Channel-Phyrus-green?style=for-the-badge"></a>
 <a href="https://t.me/aboutpherus"><img src="https://img.shields.io/badge/Telegram-Team-blue?style=for-the-badge"></a>
